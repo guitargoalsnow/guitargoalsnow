@@ -1,5 +1,5 @@
 - 👋 Hi, I’m George@guitargoalsnow
-- 👀 I’m interested in guitar ad everyting music.
+- 👀 I’m interested in guitar and everyting music.
 - 🌱 I’m currently learning guitar
 - 💞️ I’m looking to collaborate on guitar and music interviews and dicussions
 - 📫 How to reach me at georgedavid79@gmail.com
